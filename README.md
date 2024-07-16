@@ -1,2 +1,1 @@
-# testtest
-test
+난 바보야ㅠㅠ
